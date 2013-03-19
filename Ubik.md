@@ -1,18 +1,6 @@
 **Ubik**, by *Philip K. Dick*
 
-“She exists,” von Vogelsang corrected. “She merely can’t contact you. There’s a difference.”
-
----
-
 The second process is a coming-into-existence. But of something that’s never existed before.”
-
----
-
-We are served by organic ghosts, he thought, who, speaking and writing, pass through this our new environment. Watching, wise, physical ghosts from the full-life world, elements of which have become for us invading but agreeable splinters of a substance that pulsates like a former heart.
-
----
-
-that am curtailed of this fair proportion, cheated of feature by dissembling nature—’” He paused, wrinkling his forehead. “How does it go, Matt?” he asked his brother. “‘—deformed, unfinished, sent before my time into this breathing world, scarce half made up,’”
 
 ---
 
@@ -20,7 +8,7 @@ But why hadn’t the TV set reverted instead to formless metals and plastics? Th
 
 ---
 
-“Show Mr. Runciter to the consultation lounge,” Herbert said to one of his employees, who had come meandering by, curious to see what the world-renowned owner of an anti-psi organization looked like.
+We are served by organic ghosts, he thought, who, speaking and writing, pass through this our new environment. Watching, wise, physical ghosts from the full-life world, elements of which have become for us invading but agreeable splinters of a substance that pulsates like a former heart.
 
 ---
 
@@ -29,3 +17,18 @@ Decomposition back to these forms was not of his doing; they happened despite hi
 ---
 
 “You’re a policeman guarding human privacy.”
+
+---
+
+“Show Mr. Runciter to the consultation lounge,” Herbert said to one of his employees, who had come meandering by, curious to see what the world-renowned owner of an anti-psi organization looked like.
+
+---
+
+that am curtailed of this fair proportion, cheated of feature by dissembling nature—’” He paused, wrinkling his forehead. “How does it go, Matt?” he asked his brother. “‘—deformed, unfinished, sent before my time into this breathing world, scarce half made up,’”
+
+---
+
+“She exists,” von Vogelsang corrected. “She merely can’t contact you. There’s a difference.”
+
+
+[Ubik](https://readmill.com/books/ubik)

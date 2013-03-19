@@ -4,11 +4,11 @@ He won’t hear the thing come in. It travels faster than the speed of sound. Th
 
 ---
 
-This could ruin a man’s taste for sunrises.
+No, this is not a disentanglement from, but a progressive knotting into—they go in under archways, secret entrances of rotted concrete that only looked like loops of an underpass
 
 ---
 
-No, this is not a disentanglement from, but a progressive knotting into—they go in under archways, secret entrances of rotted concrete that only looked like loops of an underpass
+the Adenoid continues on its rampage, not swallowing up its victims at random, no, the fiendish Adenoid has a master plan, it’s choosing only certain personalities useful to it—there is a new election, a new preterition abroad in England here that throws the Home Office into hysterical and painful episodes of indecision . . . no one knows what to do
 
 ---
 
@@ -16,4 +16,7 @@ Pirate takes up a last dipper of mead, feels it go valving down his throat as if
 
 ---
 
-the Adenoid continues on its rampage, not swallowing up its victims at random, no, the fiendish Adenoid has a master plan, it’s choosing only certain personalities useful to it—there is a new election, a new preterition abroad in England here that throws the Home Office into hysterical and painful episodes of indecision . . . no one knows what to do
+This could ruin a man’s taste for sunrises.
+
+
+[Gravity's Rainbow](https://readmill.com/books/gravitys-rainbow)
