@@ -1,5 +1,25 @@
 **Gravity's Rainbow**, by *Pynchon, Thomas*
 
+Wind has shifted around to the southwest, and the barometer’s falling. The early afternoon is already dark as evening, under the massing rainclouds.
+
+---
+
+Shit, money, and the Word, the three American truths,
+
+---
+
+you had dispensed with God. But you had taken on a greater, and more harmful, illusion. The illusion of control. That A could do B.
+
+---
+
+No one can do. Things only happen, A and B are unreal, are names for parts that ought to be inseparable.
+
+---
+
+“It’s control. All these things arise from one difficulty: control. For the first time it was inside, do you see. The control is put inside. No more need to suffer passively under ‘outside forces’—to veer into any wind. As if . . . “A market needed no longer be run by the Invisible Hand, but now could create itself—its own logic, momentum, style, from inside.
+
+---
+
 He won’t hear the thing come in. It travels faster than the speed of sound. The first news you get of it is the blast. Then, if you’re still around, you hear the sound of it coming in.
 
 ---
