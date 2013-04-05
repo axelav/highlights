@@ -1,4 +1,4 @@
-box-of-quotes
+highlights
 =============
 
-a collection of highlights from books
+kindle highlights
